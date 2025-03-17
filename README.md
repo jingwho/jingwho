@@ -1,4 +1,4 @@
 - 👋 Hi, I'm @jingwho
-- 🧠 I'm interested in optimization (optimize everything in life and at work), sci-fi, and non-fiction (geopolitics, economics, technology)
+- 🧠 I am an AI journalist running 2nd Order Thinkers newsletter. 
 - 🚀 I have a background in science and IT. I'm currently learning about entrepreneurship, sales, and marketing
-- 📫 How to reach me: https://jwhoo.medium.com/
+- 📫 How to reach me: [https://jwhoo.medium.com/](https://jwho.substack.com/)
